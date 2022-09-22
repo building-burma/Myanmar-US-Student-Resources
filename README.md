@@ -1,8 +1,8 @@
-## Myanmar Student Resources<br>
+# Myanmar Student Resources<br>
 For those interested in studying in the United States ONLY. Please seek alternative resources for study in other countries.<br>
 <br>
 ### Scholarships<br>
-Note: scholarship amount noted in parentheses.
+Note: scholarship amount noted in parentheses:().<br>
 <br>
 Myanmar Scholarship Fund ($5000)<br>
 For Myanmar undergraduate and graduate students ENROLLED in US universities. [Apply here >>](https://www.iie.org/Programs/USABCI-Myanmar-Scholarship)<br>
