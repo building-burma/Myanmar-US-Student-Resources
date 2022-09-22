@@ -1,5 +1,5 @@
 # Myanmar Student Resources<br>
-For those interested in studying in the United States ONLY.(Please seek alternative resources for study in other countries.)<br>
+For those interested in studying in the United States ONLY. (Please seek alternative resources for study in other countries.)<br>
 Note: scholarship/grant amounts noted in parentheses where available. This is not an exhaustive resource and only meant to help you explore options for studying in the United States.<br>
 <br>
 ### Scholarships<br>
