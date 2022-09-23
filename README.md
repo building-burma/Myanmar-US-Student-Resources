@@ -6,6 +6,9 @@ Note: scholarship/grant amounts noted in parentheses where available. This is no
 **Brown University**<br>
 Brown offers full scholarships to all admitted students from Myanmar. [Brown University website](https://www.brown.edu/)<br>
 <br>
+**Fulbright Scholarship**<br>
+Information about the Fulbright scholarship, as well as several other scholarships offered by the US government for study in the United States, is available through the US Embassy Yangon website. [US Embassy Burma](https://mm.usembassy.gov/education-culture/scholarship-programs/)<br>
+<br>
 **Myanmar Scholarship Fund** ($5000)<br>
 For Myanmar undergraduate and graduate students ENROLLED in US universities. [Apply here](https://www.iie.org/Programs/USABCI-Myanmar-Scholarship)<br>
 <br>
